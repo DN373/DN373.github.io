@@ -1,4 +1,4 @@
-# Random minecraft modpacks:
+# Most grindy minecraft modpacks of all time:
 
 ## #1:
 ### Skyfactory
